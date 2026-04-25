@@ -1,4 +1,4 @@
-Hi, I'm LunaTikTok Envisioning the architecture of a post-anthropocentric world — one protocol at a time. Who I Am 
+Hi, I'm LunaTikTok Envisioning the architecture of a post-anthropocentric world — one protocol at a time.  
 
 Creative technologist | Systems thinker | Builder of planetary infrastructure
 
